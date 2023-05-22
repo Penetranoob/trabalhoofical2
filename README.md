@@ -1,2 +1,2 @@
 # trabalhoofical2
-o imbecil esse é o do wagner
+o imbecil esse é, o trabalho do wagner
